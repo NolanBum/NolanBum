@@ -1,4 +1,4 @@
-Welcome to the retard zone 
+[Welcome to the retard zone]
 
 Games I've Been BAnNeD form
 GTA V - Perm,
