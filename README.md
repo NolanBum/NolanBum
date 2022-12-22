@@ -11,3 +11,5 @@ etc... any popular game
 Been cheating/hacking since 2017
 
 Dogshit in python, C++, C#, Java
+
+and still don't know how to use a spoofer 	:woozy_face:
